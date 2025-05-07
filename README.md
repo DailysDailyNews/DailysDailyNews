@@ -17,6 +17,7 @@ Faith: I believe in Karma, a Higher Power. In life we get as much as we Put In. 
 Note: For my personal attacks: Either the companys that did me bogus. one is in court, the other guranteed. The other proxies, etc. A lil rasict click is down here
 trying to be slick, sell dope online, prostitute everything. IDGF about them, but User-Agents, IPS say Everything. Run connections while im driving, same IPS following me around. ANd on this, gurantted they would try to extort my girl and so much more. And im from the Real Hood, def aint on any of that. Trying to better? Why would i stoop to doing things so LOW, and Risk everything I have sacrifeiced for any throw this Blessing away that God has allowed and stored for ME.
 
-BUT MOST PEOPLE GET SCARED, THIS JUST MOTIVATES ME 😘
+BUT MOST PEOPLE GET SCARED, THIS JUST MOTIVATES ME ;-)
+
 
        
