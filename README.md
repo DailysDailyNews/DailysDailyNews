@@ -1,33 +1,17 @@
-- 👋 Hi, I’m @DailysDailyNews
-- The Loud Mouth American Bad Boy lol
-- Interests: javaScript, Python, Linux, Bash, Red Team, Blue Team, Techonolgy, Stocks
+⟪Daily Investors⟫
+→∲ About me: §tarted in College for my background. CSCU. Next being self-taught, learned Python, javaScript, Bash, Linux.
+             ৻Microsoft Admin, Google Admin, Linux Admin৲
 
-  ~~~IMPORTANT~~~~
-  1. For months now I keep getting attacked non-stop
-  2. Suspicous Activities @Local
-  3. What im on now Bug Hunting/Testing however everything I think coming at me is more of a Personal Matter
-   Been Debugging/Testing however in my area, keep seeing some netwroks locked, then unlocked, then paired together with a dif name all unlocked.
-   Next rumor has it where im at they are robbing everyone, prostituting, lieing, cheating, strung out. I left everything i know to get my life in Order.
-   Now quincidence or not. Found spyware on all my devices, today my system was proxied by these ignorant people, Wireshark Open-Source got me theri SSids, flags
-   Traced it back to the houses Cops are at 24/7. Now in my personal life aside from Technology, nothing else is making since. Keep catching people outside,
-  And will personally catch them, not on camera. Found a Major Business onall sorts Of BS, fraud, everything. I dont go ever looking for trouble, or tell people what I do
-  or who I am "Daily", well my stock chats, i added cookies, tracked. Local Connections, i went awhile back to intruduce myself to the baby dad, Tried to run me over?
-  Not from this town? So who would tell him???? Next, blocked phone calls, texts? Spyware on my phone? Could e a shell shot in, Def Not. Found old College notes
-  by the backdoor, cameras getting moved, my items coming up missing. Now bad habits, where are they coming from? Not mine but those around me?
-  Next our landlord normally always fixes everything, instantly. Well floor caving in, found BLACK MOLD. He said well it will be a month, First that is agaist all Federal
-  and Local Law. Then a random occurence yesterday, the landlord giving money back. Not sayng everything on here, as i am investigating. In a small city, the other day
-  my girl tried to get me to watch a show on selling drugs online. GTFO here, they have no clue whatwe can really do. They are going off my old notes, my notes
-  They know enough for me t catch them. Next I am grey hat, ethical on alot. But i dont look for trouble. But someone keeps sabatoging my systems, phones, etc. Normally
-  I do understand hacking, playing around. But this isnt the case. But im trying to make quick cash, and got this BS going on, and image this forsome reason everyone
-  in this town first they dont know me at all, think im stupid, ignorant. But once it all comes into play, I know where I will get in life doing this, testing, working.
-  But i have no reason to lie,  but on my end only possiblities, neighbors on BS, the company i might sue on BS, or my girl on BS with all of the above. Def not a snitch, or
-  a cop, I will sue all day long lol. But this is wat I am on currently, once I make some cash I will be developing some sick projects.
-  Daily
-  Note: got hacked out of all my Stock Accounts, so DailysDailyNews will be delayed
-Whats crazy, three people I know in this town. All quit talking to me, blocked. Now the past three days, all their Host names, running with the same Proxy network. 
-Truth is, im going to build all this up. Tell all te victims, and take it to a City Council Meeting. They want to play, interfere in my work, and personal life, lie to me,
-steal when I would do anything for anyone. Karma
-<!---
-DailysDailyNews/DailysDailyNews is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+⌈Occupation: Own Cyborg Tek, run DailysDailyNews, Google Bug Hunter, Ethical Pen Tester⌉
+
+⌊Goals: To be a Bug Hunter, Pen Tester, Get my business running, handle BS past legal problems, if you want to know ask me, Ill tell the truth on Everything.
+       In 20 years, plan yto replace Zacks with the Dailys Daily News. In 20 Years, I plan to have my stores running in every Major city, Cyber Security/Risk Management &
+       mobile/IOT/Spyware stores. In tis day and Age no mobile store can repair your device, No Apple worker can stop a virus. I get attacked a million times a day, but im learning the most valueable knowledge I can. Practice Makes Perfect. I also will eventually be starting my own School, Books, Support Help Line for Google lol.
+
+       I am focused on Bug Hunting and Reporting. Keeo getting denied, but focusing on Open-Source now, cus honestly without the Hunters no body would be truly secure or safe. Some laws now as a Adult I understand. Without law and order their would be chaos, like me Neighborhood. I have been n the worst prisons, worst cities in America, and im still alive. First one in my family to get Clean off Drugs, Graduate College. My Dad died the same week I started College. My legal BS past, is what will make me The Best Risk Management Service One Day.  Now at home, to be honest I feel like these mfrs are trying to set me up, get me out of the way. And honestly I see how they talk about my girl. The ones that she swears are family and friends. Fake as Fk. ANd once again they fear me? Why? Cus they did me bogus, I am grown MAN, I dont hold grudges or HATE. I spend my extra energy on Work Outs not putting negativty in my mind. Sorry but not worth it. But as Ive said this has been my entire life, always people hating, getting jealous?? Over what? I dont lie. cheat, or steal but ill help the little guy that gets robbed. Just how I always have been. And despite liek this morning, my computers getting proxied by the dope fiend neighbors, then getting my system shut off from the internet company, Inside Job. And so much more, it all leads to what ever I discovered. And instea dof being cool, they target my devices, place spyware on all the devices for what???? So here is a lil about me, just a good guy trying to figure out how to get his life on track, with haters on every single Side.
+
+
+Faith: I believe in Karma, a Higher Power. In life we get as much as we Put In. People change, and I am a living proof to this!
+      
+
+       
