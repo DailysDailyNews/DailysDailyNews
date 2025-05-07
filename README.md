@@ -20,4 +20,13 @@ trying to be slick, sell dope online, prostitute everything. IDGF about them, bu
 BUT MOST PEOPLE GET SCARED, THIS JUST MOTIVATES ME ;-)
 
 
+Last Note: Whats crazy, they always say Nice guys Finish Last. First from a outside view, I could see things instantly. Watched my hometown change the same.
+          The baby daddies, jealous, POS, strung out. The coworkers secually harrassed her, touhed her ass IN ALL. God put me with my Girl for one THING,
+          So I do all of the thinking. Her friends, all jealous cus she has a job, cus I will do anything for her. The Church people, My Grandpa's, PLURAL were Preachers.
+          Down here there pointing the blame, picking sides, trying to get involved in things when they KNOW Absolutley Nothing. Around here, everyone wants to judge by 
+          your looks, how you walk, talk. All thesse people in one ear, stealing my notes ONE OF THEM, Spyware, hours changing. Like im sure all of you solved this by 
+          Now. But I am the one that does everything, reminds appointments, makes her smile. Not HIT HER like the baby daddies, I take care of their kid. Just to get lied, to spyware placed in my system from the STORES. Logs thats how they will ruin themseleves.
+          But fk em all, about to Go Test the World haha
+
+
        
