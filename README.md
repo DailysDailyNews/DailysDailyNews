@@ -2,7 +2,7 @@
 →∲ About me: §tarted in College for my background. CSCU. Next being self-taught, learned Python, javaScript, Bash, Linux.
              ৻Microsoft Admin, Google Admin, Linux Admin৲
 
-⌈Occupation: Own Cyborg Tek, run DailysDailyNews, Google Bug Hunter, Ethical Pen Tester⌉
+⌈Occupation: Own Cyborg Tek, run DailysDailyNews, Bug Hunter, Ethical Pen Tester⌉
 
 ⌊Goals: To be a Bug Hunter, Pen Tester, Get my business running, handle BS past legal problems, if you want to know ask me, Ill tell the truth on Everything.
        In 20 years, plan yto replace Zacks with the Dailys Daily News. In 20 Years, I plan to have my stores running in every Major city, Cyber Security/Risk Management &
