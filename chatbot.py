@@ -39,7 +39,7 @@ question = input("What would you like to teach me?")
       print("Thank You, we value education and will continue to learn.")
     else:
       new_answere = input("What should I say?")
-      learn(user_input, new_answere)
+      learn(user_input, new_answer)
       
 
 if __name__ == "__main__":
